@@ -1,2 +1,2 @@
-Barış Yavuz
-2110205049
+AD SOYAD: Barış Yavuz
+ÖĞRENCİ NUMARASI: 2110205049
